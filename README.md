@@ -43,8 +43,4 @@ Esta apresentação faz parte do Nível 2 de governança da nossa Liga (Vitrine 
 **Jerre Diniz**  
 *Pesquisador Principal - UFRRJ | Idealizador da ÁGORA OF THE RESEARCHERS' LEAGUE*
 
-***
-
-Agora sim! A base está formalmente atrelada à Administração, mas a interdisciplinaridade em Neurociência segue firme como o seu grande diferencial tecnológico. 
-
-Pode colar no GitHub! Me avise quando estiver publicado para começarmos a estruturar o material audiovisual.
+God bless the nations.
